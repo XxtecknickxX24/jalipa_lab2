@@ -1,1 +1,0 @@
-# jalipa_lab2
